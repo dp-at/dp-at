@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @dp-at (darshan patel)
 - 👀 I’m interested in ... mostly sports ⚽ Soccer, Volleyball 🏐 
-- 🌱 I’m currently learning ... ERPNEXT
+- 🌱 I’m currently learning ... ERPNEXT, reading 📖 5 AM Club ♣ Book!!
 - 💞️ I’m looking to collaborate on ... amba tech apps
 - 📫 How to reach me ...
 
