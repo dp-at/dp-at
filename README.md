@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @dp-at (darshan patel)
-- 👀 I’m interested in ... mostly sports ⚽ Soccer, Volleyball 🏐 
-- 🌱 I’m currently learning ... ERPNEXT, reading 📖 5 AM Club ♣ Book!!
-- 💞️ I’m looking to collaborate on ... amba tech apps
+- 💞️ Working for https://dadabhagwan.org/
+- 👀 I’m interested in ... sports ⚽ Soccer, Volleyball 🏐 
+- 🌱 I’m currently reading 📖 5 AM Club ♣ Book!!
 - 📫 How to reach me ...
 
 <!---
