@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @dp-at (darshan patel)
 - 💞️ Working for https://dadabhagwan.org/
-- 👀 I’m interested in ... sports ⚽ Soccer, Volleyball 🏐 
+- 👀 I play sports ⚽ Soccer, Volleyball 🏐 
 - 🌱 I’m currently reading 📖 5 AM Club ♣ Book!!
 - 📫 How to reach me ...
 
